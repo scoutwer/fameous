@@ -1,0 +1,31 @@
+# Janusz Marian Palikot
+
+![](https://img.wprost.pl/img/janusz-palikot-zatrzymany-o-co-chodzi-w-glosnej-sprawie/41/98/57219f11e94faa2beafbe3233660.webp) 
+
+
+## Short description: 
+
+>  polski polityk i przedsiębiorca związany m.in. z branżą napojów alkoholowych, z wykształcenia filozof. Poseł na Sejm V, VI i VII kadencji, założyciel partii Ruch Palikota, przekształconej w Twój Ruch. Kandydat w wyborach prezydenckich w 2015.  
+> Był żonaty z Marią Nowińską, z którą ma dwóch synów: Emila i Aleksandra. Po rozwodzie zawarł związek małżeński z Moniką Kubat, z którą ma syna Franciszka i córkę Zofię. W 2008 dubbingował postać Sir Brie w filmie Łowcy smoków. Deklaruje się jako ateista, w 2012 dokonał apostazji.
+
+## Publishes:
+* 2003: Myśli o nowoczesnym biznesie (wspólnie z Krzysztofem Obłojem), ISBN 83-89405-26-1.
+* 2007: Płoną koty w Biłgoraju (wywiad rzeka przeprowadzony przez Artura Sporniaka i Jana Strzałkę), ISBN 978-83-7453-699-8.
+* 2008: Poletko Pana P., ISBN 978-83-7453-861-9.
+* 2009: Janusz Palikot, Pop-polityka, ISBN 978-83-7453-926-5.
+* 2010: Ja Palikot (wywiad rzeka przeprowadzony przez Cezarego Michalskiego), ISBN 978-83-7700-001-4.
+*   2011: Kulisy Platformy (wywiad rzeka przeprowadzony przez Annę Wojciechowską), ISBN 978-83-7700-026-7.
+* 2014: Zdjąć Polskę z krzyża, ISBN 978-83-280-0959-2.
+* 2015: Janusz Palikot. Wszystko jest możliwe. Biografia, ISBN 978-83-7453-296-9.
+* 2017: Nic-nic Ontologia na marginesach Leśmiana, ISBN 978-83-939-7997-4.
+* 2020: Piwo i dobre jedzenie, ISBN 978-83-745-3422-2.
+* 2022: Zapiski z Marakeszu, ISBN 978-83-786-6581-6.
+* 2022: Gruzińskie, ISBN 978-83-786-6454-3.
+* 2022: Wenecjowanie, ISBN 978-83-786-6574-8.
+* 2023: Stany amerykańskie, ISBN 978-83-786-6463-5.
+* 2024: Kulisy biznes-show, czyli jak wydałem 220 mln, ISBN 978-83-936-3711-9.
+
+
+## references:
+https://www.pap.pl/aktualnosci/janusz-palikot-zostaje-w-areszcie  
+https://www.money.pl/gospodarka/palikot-obiecuje-ze-splaci-wszystkie-dlugi-zajmie-to-maksymalnie-5-lat-7086127371553472a.html
